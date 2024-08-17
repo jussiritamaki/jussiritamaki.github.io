@@ -1,1 +1,0 @@
-# jussiritamaki.github.io
